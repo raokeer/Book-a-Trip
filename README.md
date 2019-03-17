@@ -4,3 +4,4 @@
 3.After reaching, settle down and explore the places, try different cuisines. Take pictures and buy things which are famous in that place.
 4.Visit famous places, experience the culture, go for trekking and camping.After the tour,vacate the room and make the payment.  
 5.Return from trip and back to normal life.
+Edited 
